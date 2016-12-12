@@ -1,1 +1,1 @@
-1111111111111
+I was alone without fear.
